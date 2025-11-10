@@ -1,2 +1,2 @@
-# hrmartin.github.io
+# Heather Martin
 Heather Martin personal site
